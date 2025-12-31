@@ -56,3 +56,64 @@ Wood elves dwelled among the forests, keeping the ancient balance.
 And the Titan looked upon his creations.
 
 And the world breathed.
+
+The Titan knew that beyond Azara, the other worlds were lost.
+
+Planets burned beneath endless skies of ash. Wars never ceased. Fire and blood covered their lands, and every race sought power above all else. Strength ruled, and mercy was forgotten. In that chaos moved the Old Gods, beings who despised creation itself and wished only to unmake what the Titans had shaped.
+
+They sought an ancient relic.
+
+Its name was Nyxara.
+
+A gem small in size, yet alive with unbridled fury. Within it rested endless power, enough to twist fate, awaken calamity, and drown worlds in tragedy. Whoever held it could summon chaos without end, and the very air would tremble at its presence.
+Fearing its might, one of the Titans struck the gem.
+
+It shattered.
+
+Nyxara split into four shards, each still pulsing with forbidden energy. The Titan gathered them all, knowing they were dangerous, yet believing destruction was not the answer. He trusted in restraint, and more than that, he trusted Azara.
+
+So he hid them.
+
+One shard was buried deep within each continent, sealed beneath stone, root, and forgotten places. The fourth shard was cast into the center of the world, far beneath the ocean, where light could not reach and memory would fade.
+
+He dared not leave them exposed, for even the Void itself might one day rise and bring its legions of ruin.
+
+And so time passed.
+
+Decades turned to centuries. Seasons changed, and Azara began to shape itself.
+
+The races spread across the world, not by war, but by desire. Each sought lands that reflected their nature.
+
+Humans built where rivers met fields. They studied, learned, and raised villages of stone and wood. Their farms were rich and bright, their roads busy with trade and travel. They named their lands Arcadia, and at its heart they built a shining capital called Centrica, a city of towers, banners, and ambition.
+
+The wood elves chose the deep forests. Nature there remained beautiful, but it grew stronger and more magical. Spirits wandered freely, and beasts showed no fear of elven presence. Trees whispered, and moonlight lingered longer beneath the leaves. Their capital was Sylveanor, hidden among ancient roots, and their continent was named Letharion.
+The dwarves claimed the mountains.
+
+Their land was cold and vast, crowned with snow and stone. Peaks reached toward the heavens, and beneath them stretched endless mines and caverns filled with ore and fire. Their realm was called Stonehelm. Among all its mountains stood one greater than the rest, sealed by a colossal iron gate. Behind it lay the dwarven capital, Anvilspire, carved deep into the living rock.
+
+The Titan watched, and his heart was glad.
+
+He had not only created a beautiful world, but a peaceful one. The races were separate, yet they did not war with one another. They traded, observed, and respected the boundaries between them.
+
+Believing Azara strong enough to endure, the Titan left the world to its people.
+
+But elsewhere, far beyond light, another presence stirred.
+
+In the depths of the galaxy lay an isolated planet, burned to its core. No trees grew there. No color remained. The land was cracked and lifeless, shaped only by chaos.
+
+It was a creation of the Void.
+
+An Old God had risen there, its restraints broken, its hatred unbound. It bore magic forbidden even to the Titans. Where it walked, reality bent and shadows gathered.
+
+The Old God turned its gaze toward Azara.
+
+Its shadow stretched outward, and within that shadow, eyes opened. Many eyes. Watching. Waiting. Shapes moved within the darkness like demons held back by breath alone.
+
+The Titan’s departure was the perfect moment.
+
+The Old God desired the shards.
+
+To gather them.
+To restore Nyxara.
+To bring ruin upon Azara.
+And at last, to destroy not only the world, but its creator.
