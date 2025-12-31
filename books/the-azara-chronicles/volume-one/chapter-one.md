@@ -1,0 +1,119 @@
+Before measure, before sound, before the counting of stars, there was silence.
+
+The galaxy was wide, and the planets were many, scattered across the dark like distant thoughts. Among the Titans, ancient beings of creation and ruin, there was one whose name was never written. He was the celestial leader of existence, the first will, the shaping hand.
+
+And his gaze rested upon a small world.
+
+It was dry and broken, its surface cracked and bare, yet its winds were gentle and its light was beautiful. The Titan looked upon this planet for a long while, and favor grew within him. Of all the worlds, this one he liked a lot.
+
+He raised his hands over the planet.
+
+At his motion, the dry land split open. The cracks widened, and from the deep places water rose and spread. Seas filled the empty hollows, and the world learned movement and calm. The Titan watched, and he was satisfied.
+
+From his palm fell magic dust, ancient and bright. When it touched the surface, it became sand. Slowly, carefully, he spread it across the waters. Small islands rose first, fragile and scattered. With time, the islands grew and pressed outward until they became continents, vast and firm beneath the sky.
+
+The shapes of the lands were already decided, though the work was not complete.
+
+The Titan pinched the earth between his fingers and lifted it upward. Stone folded upon stone, and mountains rose, tall and unmoving. With the trace of his fingers, he carved rivers into the land. They flowed naturally, following paths chosen long before they were formed. Time passed, and the shaping continued.
+
+When the world was finished, the Titan spoke its name.
+
+Azara.
+The land was complete, but it was empty, and emptiness displeased him a lot.
+So the Titan turned his attention to creation once more.
+
+From the rich soil of Azara, he gathered earth, warm and full of life. He shaped it into a form that could stand and walk. He gave it hands to build and eyes to wonder. Then he breathed into it a spark of will.
+
+Thus, humans were born.
+
+They were not made eternal. Their lives were short, and their bodies fragile, but their spirits burned bright. The Titan gave them curiosity, desire, and the need to seek meaning. He gave them fear so they would survive, and hope so they would endure. He knew they would struggle a lot, but struggle would make them grow.
+
+Yet as the Titan observed them, he saw that humans would wander far across the world. They would change the land, but they would not know its deepest bones.
+
+So he shaped another people.
+
+From the heart of the mountains, he carved bodies of stone and iron. He made them short and broad, with arms like pillars and backs that could bear the weight of the world. He hardened their skin and filled their blood with fire and ore.
+
+Thus, the dwarves were born.
+
+To them, the Titan gave the deep places of Azara. He taught them the language of stone and the patience of the earth. They learned to mine the mountains, to shape metal, and to build halls beneath the world. Their beards grew long as symbols of age and honor. They were stubborn and unyielding, loyal to kin and craft. Where humans built upward, dwarves built inward, carving their legacy into the bones of the land.
+
+Still, the world was not balanced, and the Titan desired harmony a lot.
+So he turned to the forests.
+
+From living wood and flowing sap, he shaped slender forms. He gave them long limbs and sharp senses. He bound their spirits to the rhythm of wind and leaf, and their hearts to the passing of seasons.
+
+Thus, the wood elves were born.
+
+They moved lightly upon the earth, leaving no wound behind. The forests recognized them as kin. The trees bent to shelter them, and the beasts did not fear their presence. The Titan gave them long life, keen sight, and quiet wisdom. They became watchers of the wild places, guardians of growth and decay.
+
+And so Azara was filled.
+
+Humans walked the open lands and dreamed of endless futures.
+Dwarves claimed the mountains and shaped the world with hammer and flame.
+Wood elves dwelled among the forests, keeping the ancient balance.
+
+And the Titan looked upon his creations.
+
+And the world breathed.
+
+The Titan knew that beyond Azara, the other worlds were lost.
+
+Planets burned beneath endless skies of ash. Wars never ceased. Fire and blood covered their lands, and every race sought power above all else. Strength ruled, and mercy was forgotten. In that chaos moved the Old Gods, beings who despised creation itself and wished only to unmake what the Titans had shaped.
+
+They sought an ancient relic.
+
+Its name was Nyxara.
+
+A gem small in size, yet alive with unbridled fury. Within it rested endless power, enough to twist fate, awaken calamity, and drown worlds in tragedy. Whoever held it could summon chaos without end, and the very air would tremble at its presence.
+Fearing its might, one of the Titans struck the gem.
+
+It shattered.
+
+Nyxara split into four shards, each still pulsing with forbidden energy. The Titan gathered them all, knowing they were dangerous, yet believing destruction was not the answer. He trusted in restraint, and more than that, he trusted Azara.
+
+So he hid them.
+
+One shard was buried deep within each continent, sealed beneath stone, root, and forgotten places. The fourth shard was cast into the center of the world, far beneath the ocean, where light could not reach and memory would fade.
+
+He dared not leave them exposed, for even the Void itself might one day rise and bring its legions of ruin.
+
+And so time passed.
+
+Decades turned to centuries. Seasons changed, and Azara began to shape itself.
+
+The races spread across the world, not by war, but by desire. Each sought lands that reflected their nature.
+
+Humans built where rivers met fields. They studied, learned, and raised villages of stone and wood. Their farms were rich and bright, their roads busy with trade and travel. They named their lands Arcadia, and at its heart they built a shining capital called Centrica, a city of towers, banners, and ambition.
+
+The wood elves chose the deep forests. Nature there remained beautiful, but it grew stronger and more magical. Spirits wandered freely, and beasts showed no fear of elven presence. Trees whispered, and moonlight lingered longer beneath the leaves. Their capital was Sylveanor, hidden among ancient roots, and their continent was named Letharion.
+The dwarves claimed the mountains.
+
+Their land was cold and vast, crowned with snow and stone. Peaks reached toward the heavens, and beneath them stretched endless mines and caverns filled with ore and fire. Their realm was called Stonehelm. Among all its mountains stood one greater than the rest, sealed by a colossal iron gate. Behind it lay the dwarven capital, Anvilspire, carved deep into the living rock.
+
+The Titan watched, and his heart was glad.
+
+He had not only created a beautiful world, but a peaceful one. The races were separate, yet they did not war with one another. They traded, observed, and respected the boundaries between them.
+
+Believing Azara strong enough to endure, the Titan left the world to its people.
+
+But elsewhere, far beyond light, another presence stirred.
+
+In the depths of the galaxy lay an isolated planet, burned to its core. No trees grew there. No color remained. The land was cracked and lifeless, shaped only by chaos.
+
+It was a creation of the Void.
+
+An Old God had risen there, its restraints broken, its hatred unbound. It bore magic forbidden even to the Titans. Where it walked, reality bent and shadows gathered.
+
+The Old God turned its gaze toward Azara.
+
+Its shadow stretched outward, and within that shadow, eyes opened. Many eyes. Watching. Waiting. Shapes moved within the darkness like demons held back by breath alone.
+
+The Titan’s departure was the perfect moment.
+
+The Old God desired the shards.
+
+To gather them.
+To restore Nyxara.
+To bring ruin upon Azara.
+And at last, to destroy not only the world, but its creator.
